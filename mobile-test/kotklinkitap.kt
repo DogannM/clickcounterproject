@@ -1,0 +1,1 @@
+ilk giriş cümlesi yapıldı.
